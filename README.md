@@ -8,8 +8,3 @@
 
 Dokumentasi
 https://docs.google.com/document/d/1Bm6iUlLVheNVB79O5YScVl9Y3VxodMaX0UjJg1yguGM/edit?usp=sharing 
-
-
-
-
-![WhatsApp Image 2024-06-19 at 16 46 40_fbea8068](https://github.com/user-attachments/assets/f9099443-a28f-4ccc-96f2-f3e6216e65d5 width="150")
